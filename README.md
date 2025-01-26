@@ -3,7 +3,7 @@
 - 👀 I’m Currently building my Dream Prject
 - 🌱 Also Learning MEAN STACK 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...alameenmail@gmail.com
+- 📫 How to reach me ...alameenmail07@gmail.com
 - 😄 Pronouns: Ameen/Allu
 - ⚡ Fun fact: JUSt 19 yrs
 - Eat-Sleep-Coffie-Code-repeat()
